@@ -1,6 +1,6 @@
 art by bfdifan26!!!!
 
-![hi](https://media.discordapp.net/attachments/940739088259112980/1233714430542348298/tumblr_ba4c09003d92aa53eb05123a655c7803_ee0744e8_2048_1.png?ex=662e1999&is=662cc819&hm=115772fcd0cabe55243301272f26d1c280c9fe55f31ab7a91f682a430e3ee66a&=&format=webp&quality=lossless&width=300&height=300)
+![hi](https://media.discordapp.net/attachments/952714691610804224/1240437206351609997/yayyy.png?ex=66468eac&is=66453d2c&hm=35d235400b93da9d324a6ab0d31e93386eae4245e7a82d8407740e6ba10abd96&=&format=webp&quality=lossless&width=500&height=367)
 
 # "*look into my eyes.*"
 
