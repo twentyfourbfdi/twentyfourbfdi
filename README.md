@@ -1,6 +1,6 @@
 art by bfdifan26 and clausilly!!!!
 
-![hi](https://media.discordapp.net/attachments/952714691610804224/1240437206351609997/yayyy.png?ex=66468eac&is=66453d2c&hm=35d235400b93da9d324a6ab0d31e93386eae4245e7a82d8407740e6ba10abd96&=&format=webp&quality=lossless&width=500&height=367)
+<img src="https://i.imgur.com/ZEwzgpo.jpeg" width="450" height="400">
 
 # "*two peas in a pod!*"
 
